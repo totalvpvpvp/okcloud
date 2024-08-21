@@ -8,7 +8,7 @@ OK CLOUD机场拥有超稳定高速的SS/SSR节点，不限制本人设备数，
 
 流畅观看 Netflix、HBO、Fox+、Disney+、BBC iPlayer、 TVB 等平台上的海量电视剧和电影。
 
-新用户可试用7天，先试用再购买。11111111
+新用户可试用7天，先试用再购买。111111111
 
 ## OKCLOUD优惠码
 
